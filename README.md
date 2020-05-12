@@ -67,7 +67,7 @@
 - I know about you （什么都知道一点）
 - The word "about-face" most probably means: change of attitude.
 ## 不安的心理状态
-
+保持节奏，但不要陷入拖延的流中。注意时间。
 ## 形式主义
 - 教育的目的是让学生体会到高手的境界，高手更通透。
 - 一切考试的目的，都是水平的考察。
